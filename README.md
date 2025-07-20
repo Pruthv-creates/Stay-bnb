@@ -1,1 +1,1 @@
-Preview: https://pruthv-creates.github.io/travellers_page/
+Preview: https://pruthv-creates.github.io/Stay-bnb/
